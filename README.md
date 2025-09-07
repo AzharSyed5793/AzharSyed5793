@@ -1,4 +1,4 @@
-# About Me
+# About Me💫
 
 👩‍🎓 Pursuing B.Tech, 2nd Year, CSE  
 🚀 Always exploring new skills
